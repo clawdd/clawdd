@@ -1,3 +1,3 @@
 Ayooo,
 
-ich bin max und ich programmiere manchmal hi :)
+i´m max and i program sometimes, hope you find what ever you search :)
